@@ -1,1 +1,1 @@
-i love assignmnets
+i love myself
